@@ -12,9 +12,7 @@ good question, i have no idea
 
 ## Patches and features
 
-literally fucking nothing
-
-bone stock as your moms honda civic
+cba
 
 ## Installation for n\*rmies
 
